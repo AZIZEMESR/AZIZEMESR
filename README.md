@@ -1,5 +1,5 @@
 # 💫 About Me:
-Turing team member
+UI/UX-Centric Web Developer | Turning Designs into Efficient Code
 
 
 ## 🌐 Socials:
